@@ -7,8 +7,8 @@
 - 🌱 I’m currently learning everything in AI
 - 📈 I Love to work with GenAI and Agentic AI tech  
 - 👯 I’m looking to work with fast and lean startups
-- 🥅 2025 Goals: Ship more!!
-- ⚡ Hobbies : I love to read and play Games
+- 🥅 2026 Goals: Ship more!!
+- ⚡ Hobbies : I love to read and play Games (completed most COD's)
 
 ### Connect with me:
 
